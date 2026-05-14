@@ -1,4 +1,4 @@
-# 
+# quantitative dexscreener sniper bot | private-RPC-nodes + degen-coin-scanning offers the most advanced dexscreener sniper bot, with private-RPC-nodes and degen-coin-scanning.
 
 
 
